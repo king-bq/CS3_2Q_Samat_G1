@@ -7,4 +7,4 @@ I like chocolate xiao long bao and have a black poodle 😛. i like mangoes and 
 I love bonchon and dtf, my cats fell in a canal and a trashcan :) everything is depressing i am scared for pe practicals i miss my bed
 
 # King Berlin M. Quiambao
-I love the smell of aircon and all 5 of my pet birds died.
+I love the smell of aircon and all 5 of my pet birds died. A white spider once crawled on my hand and I threw it at someone.
